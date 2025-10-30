@@ -1,0 +1,1 @@
+# mt-yahayuk-auto-walk
